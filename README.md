@@ -1,1 +1,1 @@
-hajizaffar@gamandor.com
+hajizafar
